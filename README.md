@@ -1,1 +1,1 @@
-# MartinBensonStudent.github.io
+# MartinBenson.github.io
